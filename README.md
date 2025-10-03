@@ -1,1 +1,2 @@
-# regressing-as-the-reincarnated-bastard-of-the-sword-clan
+# Regressing as the Reincarnated Bastard of the Sword Clan
+Le Grand Mur du Nord. Les Chevaliers Dragons. Les Seigneurs des Montagnes d’Hiver. Les Descendants du Dragon Primordial. Ce sont les différents titres du Clan Grand Ducal Ragnar, qui se vantait d’une riche histoire millénaire. Theo Ragnar s’est résolu à viser le trône de ce même clan. « Ces chaînes maudites n’étaient pas quelque chose dont je pouvais me sortir. Elles étaient faites pour être brisées avec force. »
